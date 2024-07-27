@@ -1,3 +1,2 @@
-**bluelock - 7/10
-death note - 9/10
-**
+bluelock - 7/10 <br />
+death note - 9/10 <br />
